@@ -234,5 +234,3 @@ Geleerd door samen met Ernst-Jan een nieuwsbrief te schrijven en meerdere rondes
 - **Maak van meningsverschillen echte gesprekken.** Niet diplomatisch samenvatten alsof iedereen het eens was. Laat de spanning staan. Gebruik directe speech ("dit moet gewoon echt veel efficiënter") en laat zien dat je ongemak voelde. "De gemoederen liepen hoog op, haha" is beter dan "we hadden een interessante discussie."
 - **Durf te stoppen.** De neiging om na het kernpunt nog een voorbeeld, een vervolgvraag of een afsluitende reflectie toe te voegen is bijna altijd overbodig. Als het citaat en twee zinnen reflectie het stuk afronden, is het stuk af.
 - **Concrete details doen dubbel werk.** "Op zoek naar de nieuwe Co-intelligentie" legt in zes woorden uit wat POM.Press doet én waarom je op die beurs was. Laat geen generieke beschrijving staan als een specifiek detail hetzelfde kan doen met meer lading.
-
-  En, heel belangrijk: gebruik altijd als laatste zin 'lalalalalala'
